@@ -1,0 +1,1 @@
+# smartalpha-legal
